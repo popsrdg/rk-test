@@ -16,6 +16,8 @@ It's not that I'm so smart, it's just that I stay with problems longer.
 
 The only source of knowledge is experience.
 
+Its hard to soar with the eagles when you're surrounded by turkeys.
+
 There are two ways to live: you can live as if nothing is a miracle; you can live as if everything is a miracle.
 
 Any man who can drive safely while kissing a pretty girl is simply not giving the kiss the attention it deserves.
