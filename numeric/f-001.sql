@@ -16,8 +16,6 @@ It's not that I'm so smart, it's just that I stay with problems longer.
 
 The only source of knowledge is experience.
 
-Its hard to soar with the eagles when you're surrounded by turkeys.
-
 There are two ways to live: you can live as if nothing is a miracle; you can live as if everything is a miracle.
 
 Any man who can drive safely while kissing a pretty girl is simply not giving the kiss the attention it deserves.
@@ -25,6 +23,13 @@ Any man who can drive safely while kissing a pretty girl is simply not giving th
 Education is what remains after one has forgotten what one has learned in school.
 
 I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones.
+
+-------------------------------------------------------
+Adam Sandler QUOTES
+
+Its hard to soar with the eagles when you're surrounded by turkeys.
+
+This one did not look like an Einstein quote ... but I like it
 
 
 
