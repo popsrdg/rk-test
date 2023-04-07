@@ -20,7 +20,7 @@ There are two ways to live: you can live as if nothing is a miracle; you can liv
 
 Any man who can drive safely while kissing a pretty girl is simply not giving the kiss the attention it deserves.
 
-Education is what remains after one has forgotten what one has learned in school.
+this one was dropped
 
 I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones.
 
