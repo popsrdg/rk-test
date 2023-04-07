@@ -1,0 +1,1 @@
+select * from gsr.cds.tb_cds_customer limit 100; -- Kumar added this on 04072023
