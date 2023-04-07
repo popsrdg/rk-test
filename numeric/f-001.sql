@@ -12,7 +12,7 @@ Learn from yesterday, live for today, hope for tomorrow. The important thing is 
 
 Strive not to be a success, but rather to be of value.
 
-It's not that I'm so smart, it's just that I stay with problems longer. 
+Being happis is a state of mind (not einstein)
 
 The only source of knowledge is experience.
 
